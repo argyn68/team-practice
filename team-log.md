@@ -17,5 +17,8 @@ change_240526, 8:51am
 - Notes:
 
 ## cheena
-- Joined: 
-- Notes:
+- Joined: may 24 2026
+- Notes: im the ceo of guptown  
+
+
+change_240526, 11:17am im gup
